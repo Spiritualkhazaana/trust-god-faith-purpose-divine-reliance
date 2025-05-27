@@ -1,1 +1,2 @@
-# trust-god-faith-purpose-divine-reliance
+# *Trust God – A Deep Dive into Faith, Purpose, and Divine Reliance*
+# *In a world increasingly driven by self-reliance, instant gratification, and material success, the need for spiritual grounding has never been more urgent. “Trust God” by Quentin E. Cumings is a compelling call to return to foundational faith in a higher power. This book isn’t just another devotional or theological treatise; it’s a heartfelt journey through the trials of life that challenge our trust in God and how surrendering to divine will can transform our existence.* [More details…](https://spiritualkhazaana.com/trust-god-faith-purpose-and-divine-reliance/)
