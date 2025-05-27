@@ -1,0 +1,1 @@
+# trust-god-faith-purpose-divine-reliance
